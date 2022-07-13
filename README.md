@@ -15,7 +15,7 @@
 
 
 
-![Screenshot_2](https://user-images.githubusercontent.com/58353436/178736444-2eda774a-0343-491c-a690-dcdf981c6297.png)
+
 
 
 
